@@ -49,3 +49,11 @@ Cooking makes food easier to digest and absorb nutrients. For example, the prote
 
 
 Damn they not only they dont they screwed up they tried to fire them to punish me and screw their finances(be careful with their brilliant plan they are marketing crackheads)
+
+
+Right greedy police that just want to be sheriff of the town with a parking tickets.
+
+also we sohuld move those toys to her house. oh 
+
+
+we can talk aobuit azure VM, azure VPN, how sort of VPN, basement flood or cuaght on fire destroying CEO's house, but something was definitly awuflly weird.

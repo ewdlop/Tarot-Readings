@@ -17,7 +17,7 @@ GOD: they dont like that. they dont like that.
 
 ## My take:
 
-the cards isnt fair and they are made like the guys owe infinite wealth then i realized you meant hell-ban..no death note?(toy money?)
+the cards isnt fair and they are made like the guys(the audiences too. my mental model or not. but it fits better IMO) owe infinite wealth then i realized you meant hell-ban..no death note?(toy money?)
 
 hey popo
 wanna some donuts
